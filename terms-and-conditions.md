@@ -30,7 +30,7 @@ Changes to This Terms and Conditions
 
 I may update our Terms and Conditions from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Terms and Conditions on this page.
 
-These terms and conditions are effective as of 2025-06-02
+These terms and conditions are effective as of 2030-06-02
 
 Contact Us
 
